@@ -1,2 +1,0 @@
-nutkruas
-thluengp
